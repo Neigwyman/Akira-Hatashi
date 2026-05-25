@@ -1,2 +1,2 @@
-# Akira-Hatashi
-Wiki Oficial de Biø Apocalypse
+# XXXX-XXXX-XX
+
